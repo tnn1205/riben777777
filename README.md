@@ -22,4 +22,4 @@
 
 快来收藏本站，开启你的2025年度成人羞羞免费之旅。新片天天上，快感不间断！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/tnn1205/riben777777 ）</span> 
